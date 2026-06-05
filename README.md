@@ -156,6 +156,3 @@ Bu Gizlilik Politikası hakkında sorularınız için bize ulaşabilirsiniz:
 
 - E-posta: ecesaadetbeyaz@gmail.com
 
----
-
-*© 2025 Şirket Adınız. Tüm hakları saklıdır.*
